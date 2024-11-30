@@ -41,7 +41,7 @@ Download Post By Video Id
 
 Download tiktok video without watermark
 
-contact Telegram  https://t.me/mariabosser
+contact Telegram  https://t.me/Nike1USA
 
 telegram chanel https://t.me/githubtooul
 
@@ -88,7 +88,7 @@ tiktok api 最新版本批量创建抖音账号，...
 
 下载无水印抖音视频
 
-联系 Telegram https://t.me/mariabosser
+联系 Telegram https://t.me/Nike1USA
 
 telegram香奈儿 https://t.me/githubtooul
 
@@ -133,7 +133,7 @@ tiktok api последняя версия массового создания �
 
 Скачать видео tiktok без водяного знака
 
-связаться с Telegram https://t.me/mariabosser
+связаться с Telegram https://t.me/Nike1USA
 
 телеграм канал https://t.me/githubtooul
 
@@ -179,6 +179,6 @@ user_id を通じてユーザーの情報を受け取る
 
 透かしなしで tiktok 動画をダウンロード
 
-Telegram に連絡 https://t.me/mariabosser
+Telegram に連絡 https://t.me/Nike1USA
 
 telegramシャネル https://t.me/githubtooul
